@@ -1,0 +1,18 @@
+###### Asexuality
+Asexuality is a broad spectrum that includes those who do not experience sexual attraction, those who do not experience sexual desire, those who do not care about sex, those who are repulsed[^1] by sex, and those who only feel occasional sexual attraction or desire. This is by no means a comprehensive definition as asexual experiences are incredibly diverse. There are many identities within the asexual spectrum; Anagnori[^2] and Arospecawarenessweek[^3] both list some of these. As an example, demisexuals are those who only feel sexual attraction after forming a strong emotional bond with another person. Asexuality, like aromanticism, is an umbrella term as well as an identity. It is also important to note that asexuals, or “aces,” may or may not have sex and may or may not experience arousal, which they may or may not act on. Because asexuality is such a large umbrella term and people have various reasons to have sex, identifying as asexual does not imply anything about someone’s level of sexual activity.
+
+Despite their differences, asexuality and aromanticism have much in common, meaning theoretical arguments about asexuality can be applied to aromanticism with only a few adjustments. CJ DeLuzio Chasin[^4] and Mark Carrigan, Kristina Gupta, and Todd G. Morrison[^5] all note that current definitions of asexuality imply experiencing sexual attraction is the default. They believe asexuality has the potential to challenge dominant ideas about sexuality and reshape the way we think about sexual attraction. Carrigan, Gupta, and Morrison stress how important it is for those studying and discussing asexuality to consider the implications of their work to ensure they do not accidentally support the constructs and social systems they are trying to destabilize. They wonder if asexuality should be used to start “a critical re-examination of the conceptual framework within which human sexuality is studied.”[^6] Chasin believes asexuality can and should challenge the entire concept of sexuality, but warns against creating essentialist definitions. Defining “asexuality” as “a relatively stable and typically lifelong trait”[^7] that people are born with does nothing to challenge our hypersexual culture or force people to rethink human sexuality. This definition says asexuality is not a choice, that poor asexuals are unable to become sexual, but would if they could. Essentialist definitions are counterproductive; they assume sexuality is the norm and construct asexuals as outliers. Careful, thoughtful definitions of asexuality can help us challenge heteronormativity and dominant ideas about human sexuality. Chasin and Carrigan, Gupta, and Morrison’s points easily carry over to a discussion of aromanticism as aromanticism, if defined properly, also has the potential to challenge dominant ideas.
+
+[^1]:	Sex repulsed and romance repulsed are common terms in the asexual and aromantic communities; Arospecawarenessweek discusses both of these in “Glossary of Terms.”
+
+[^2]:	In “Words and Concepts Used in Asexual Communities.”
+
+[^3]:	In “Glossary of Terms.”
+
+[^4]:	Chasin, “Reconsidering Asexuality and Its Radical Potential.”
+
+[^5]:	Carrigan, Gupta, and Morrison, "Asexuality Special Theme Issue Editorial."
+
+[^6]:	Carrigan, Gupta, and Morrison, "Asexuality Special Theme Issue Editorial,“ 117.
+
+[^7]:	Chasin, “Reconsidering Asexuality and Its Radical Potential,” 409.
